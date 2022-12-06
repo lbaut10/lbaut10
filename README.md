@@ -1,2 +1,2 @@
-- 👋 Holis, mi nombre es Laydi Viviana, pero tú me puedes decir 🌈Vivi 
+- 👋 Hola, mi nombre es Laydi Viviana, pero tú me puedes decir 🌈Vivi 
 - 🌱 Siempre aprendiendo
